@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Wealthlord1
+- 👀 I’m interested in coding and python
+- 🌱 I’m currently learning, alot
+- 💞️ I’m looking to collaborate on anything possible 
+- 📫 How to reach me is right here
+- ⚡ Fun fact: ... OOPS NONE IS MY NAME 📛 
